@@ -1,4 +1,4 @@
-# Hey, I'm Mohamed Fatheen (`demonzhack`) ⚡
+# Hey, I'm Mohamed Fatheen  ⚡
 
 > First-year B.E. CSE student @ Saveetha Engineering College • Builder, problem solver & tech explorer 🚀
 
